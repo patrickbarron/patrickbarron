@@ -6,7 +6,7 @@ My Github account is where I store my personal projects completed outside of Uni
 
 My backgroud is mostly in Agriculture, so naturally my first projects had an agriultural focus. I was a Juniour Wheat Breeder before undetaking my Masters, so my expertise and knowledge lended themselves fittingly to my initial projects.
 
-My goal is to create a diverse range of projects encasing all aspects of what I'm learning on my course, across a range of subject areas. 
+My goal is to create a diverse range of projects encasing all aspects of what I'm learning on my course, across a range of subject areas. Newer projects are being worked on in the background and will be added through the year!
 
 Any questions please get in touch!
 
